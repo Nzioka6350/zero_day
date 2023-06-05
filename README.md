@@ -1,1 +1,1 @@
-**strong**
+**Strong**
